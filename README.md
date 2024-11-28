@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **lucasfernando_sousa@outlook.com**
 
-- 📄 Data Analyst [https://www.linkedin.com/in/lucas-fernando-s/](https://www.linkedin.com/in/lucas-fernando-s/)
+- 📄 Data Analyst | Organizational Psychologist [https://www.linkedin.com/in/lucas-fernando-s/](https://www.linkedin.com/in/lucas-fernando-s/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
